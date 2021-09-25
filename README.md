@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SmulenSamul
+- 👀 I’m interested in hentai
+- 🌱 I’m currently learning school
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me idk i get mails from git hub
